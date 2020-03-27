@@ -1,4 +1,4 @@
-# How to Make a Good Presentation
+# How to Make an Awesome Presentation
 
 Author: Anh Tra   
 Email: tratrunganh001@gmail.com
